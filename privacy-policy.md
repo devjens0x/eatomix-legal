@@ -1,6 +1,6 @@
 # Privacy Policy for Eatomix
 
-*Last updated: [Current Date]*
+*Last updated: 11-25-2024*
 
 ## 1. Introduction
 
